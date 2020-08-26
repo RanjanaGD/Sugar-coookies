@@ -5,4 +5,4 @@
  5.after 30 mins take the dought , cut them into pieces and bake them is the oven for 20-30 mins .
  6. the cookies are ready 
  7. taste it 
- 8.yummy!!!!!!!!!!!!!!!!!!!!
+ 8.yummy!!!!!!!!!!!!!!!!!!!! 
